@@ -1,1 +1,0 @@
-# EMotorad_Company_Assignment
